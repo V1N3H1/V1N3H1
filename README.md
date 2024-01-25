@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @V1N3H1
+- 👀 I’m interested in making Lethal Company Mods!
+- 🌱 I’m currently learning coding!
